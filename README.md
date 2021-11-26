@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I hope that you who visit this place will always be filled with peace. 👋
 
 <!--
 **HalfMoonKim/HalfMoonKim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
